@@ -1,0 +1,1 @@
+https://www.elladodelmal.com/2023/08/como-lograr-que-llama-2-bard-ai-chatgpt.html

@@ -1,0 +1,1 @@
+https://hakin9.org/manuka-a-modular-osint-honeypot-for-blue-teamers/
